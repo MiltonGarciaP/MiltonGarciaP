@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **miltongp26@gmail.com**
 
-- 📄 My personal Page [https://miltongarcia.netlify.app/](https://miltongarcia.netlify.app/)
+- 📄 My personal Page [https://miltongarciaingles.netlify.app/](https://miltongarciaingles.netlify.app/)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
